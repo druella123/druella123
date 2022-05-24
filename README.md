@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @druella123
+- 👀 I’m interested in product design
+- 🌱 I’m currently learning product design with zuri team
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me (ig; druella.)
